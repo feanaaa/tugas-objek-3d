@@ -1,1 +1,0 @@
-# tugas-objek-3d
